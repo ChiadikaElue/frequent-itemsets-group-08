@@ -2,9 +2,11 @@
 
 Group 8;
 
-Chiadika Elue
+Chiadika Elue - 670280
 
-Keyshia Mideva
+Keyshia Mideva - 669952
+
+Nelisa Wacera
 
  
 
